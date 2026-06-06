@@ -1,0 +1,2 @@
+# mawaddah
+Privacy Policy
